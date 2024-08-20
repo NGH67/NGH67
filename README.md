@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @NGH67
+- 👀 I’m from HCMUTE
+- 🌱 I’m currently learning computer engineer
